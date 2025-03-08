@@ -2,7 +2,7 @@
 - 👀 I’m interested in WEB DEVELOPMENT & FULL STACK 
 - 🌱 I’m currently learning DATA ANALYST 
 
-- 📫 How to reach me rishireddy247@gmail.com
+- 📫 How to reach me rishireddyy667788@gmail.com
 
 
 <!---
